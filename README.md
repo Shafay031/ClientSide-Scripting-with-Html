@@ -43,8 +43,8 @@ Stay tuned!
 
 ## 📫 Let's Connect
 
-- 🔗 [LinkedIn](#) *(Add your LinkedIn link here)*
-- 📧 Email: *(Optional)*
+- 🔗 [LinkedIn](#) *(https://www.linkedin.com/in/shafay-imran-100a27334/overlay/about-this-profile/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base%3BKdWPgWW2R9SQEB4NS%2BwyEw%3D%3D)*
+- 📧 Email: *(mshafay716@gmail.com)*
 
 ---
 
